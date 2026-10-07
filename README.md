@@ -1,0 +1,1 @@
+# NacionMedia-Diagnostico
